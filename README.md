@@ -69,4 +69,4 @@ Want to be the first to know when the **Full YKT Version** is launched for your 
 
 Subscribe to our dedicated YKT updates below!
 
-**[Link to General Newsletter Signup (optional)]**
+**[Link to General Newsletter Signup]**
