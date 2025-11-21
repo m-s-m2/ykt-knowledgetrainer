@@ -21,8 +21,7 @@ The essential certification focused on managing Artificial Intelligence projects
 * **MVP Content:** 20 critical questions (Easy and Hard mix) designed to assess your understanding of the AI Project Framework.
 * **YKT Advantage:** Questions crafted to mirror the complexity of the official exam's 6 Domains.
 
-**➡️ DOWNLOAD NOW: CPMAI Starter Kit**
-**[Link to Signup/Download Form for CPMAI]**
+**➡️ DOWNLOAD NOW:** **[CPMAI Starter Kit](https://subscribepage.io/xNqnUn)**
 
 ---
 
@@ -34,8 +33,7 @@ PMI's top-tier Agile certification, vital for professionals managing iterative a
 * **MVP Content:** 20 fundamental and situational questions (Easy and Hard) covering core Agile principles and practices.
 * **YKT Advantage:** Realistic, scenario-based questions to prepare you for the ACP exam format.
 
-**➡️ DOWNLOAD NOW: ACP Starter Kit**
-**[Link to Signup/Download Form for ACP]**
+**➡️ DOWNLOAD NOW:** **[ACP Starter Kit](https://subscribepage.io/31Qlhz)**
 
 ---
 
@@ -47,9 +45,7 @@ The bedrock of mission-critical programming in finance, insurance, and governmen
 * **MVP Content:** 20 coding challenges and theory questions to test your proficiency in COBOL structures.
 * **YKT Advantage:** Specialized material developed to keep essential legacy skills sharp and current.
 
-**➡️ DOWNLOAD NOW: COBOL Starter Kit**
-**[Link to Signup/Download Form for COBOL]**
-
+**➡️ DOWNLOAD NOW:** **[COBOL Starter Kit](https://subscribepage.io/GRHK7I)**
 
 ---
 
